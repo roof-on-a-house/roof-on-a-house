@@ -1,16 +1,58 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**roof-on-a-house/roof-on-a-house** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+═════════════════════════════════════════════════════════════════════════════════════════
 
-Here are some ideas to get you started:
+## - Hello Everypony -
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<details>
+<summary> Call me Evo or Percy </summary> 
+
+  *you can also call me Michael if we're friends*
+</details>
+
+**H**e / **T**hey / **I**t
+
+18 years of age || September 04, 2008
+
+**Michael Afton** IRL 
+
+*(Fictionkin? Still figuring out the specifics...)*
+
+═══════════════════════════════════════════════════
+
+
+## - Before You Interact -
+
+
+
+I am **pro-ship** and **pro-fiction**, your DNI goes both ways.
+
+Dark/comshipper & Yumeshipper
+
+
+<details>
+<summary> DNI </summary>
+  ⟡ Pro-Contact and Anti-Recovery, -18 (I'm on the 18+ server for a reason) ⟡
+
+  *You will be blocked and hidden.*
+</details>
+
+<details>
+<summary> IWC </summary>
+  ⟡ Radqueers, fakeclaimers, if you refer to other people as "doubles", if you use Generative AI or defend people who do ⟡
+
+  *Not complete DNIs but I may hide you eventually. I will NOT friend you if you're on this list.*
+</details>
+
+
+Please keep in mind I am fresh off the safe server and am still getting used to the 18+ server.
+
+═════════════════════════════════════════════════════════════════════════════════════════
+##
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+</div>
+
+
+
