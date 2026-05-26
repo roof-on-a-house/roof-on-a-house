@@ -16,7 +16,7 @@
 
 **Michael Afton** IRL 
 
-*(Fictionkin? Still figuring out the specifics...)*
+*(Fictionkin? TransCharacter? Still figuring out the specifics...)*
 
 ══════════════════════════════════════
 
