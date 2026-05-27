@@ -28,7 +28,7 @@
 <details>
  <summary> Michael Afton IRL - TransCharacter </summary>
 
- **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*), I do not believe TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I still use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
+ **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*), I do not believe TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
 
 </details>
 
@@ -43,7 +43,7 @@
 
 I am **Pro-ship** and **Pro-fiction**, your DNI goes both ways.
 
-Dark/Comshipper & Yumeshipper (both OC x Canon and Selfships)
+Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
 
 
 <details>
