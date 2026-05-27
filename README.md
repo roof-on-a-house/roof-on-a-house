@@ -16,9 +16,7 @@ prepare for yapsesh
 
 **H**e / **T**hey / **I**t - **G**ender**Q**ueer - **M**asc terms pref
 
-**B**isexual with pref for men, **P**olyamorous 
-
-**O**bjectum/**O**bjectophile
+**B**isexual, **P**olyamorous | **O**bjectum/**O**bjectophile
 
 <details>
 
@@ -48,7 +46,7 @@ prepare for yapsesh
 <details>
 <summary> DNI </summary>
   
- <ins> Pro-Contact and Anti-Recovery, Radqueers, Transmeds, -18 (I'm on the 18+ server for a reason) </ins>
+Pro-Contact and Anti-Recovery, Radqueers, Transmeds, -18 (I'm on the 18+ server for a reason)
 
   *You will be blocked and permhidden with no exceptions.*
 </details>
@@ -57,7 +55,7 @@ prepare for yapsesh
 <details>
 <summary> IWC </summary>
   
- <ins> Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI </ins>
+Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI
 
   *Not strict DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
 </details>
@@ -73,9 +71,9 @@ Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
 
 Whisper to interact - I might not be paying attention to my screen, either offtab or fully AFK.
 
-Taking any amount of inspo from my ponies is completely fine, I find it flattering! Straight up copying 1:1 will result in a hide.
-
 If any of my opinions haven't driven you away and you're not on my DNI, cuddles are welcome and encouraged!
+
+Taking any amount of inspo from my ponies is completely fine, I find it flattering! Straight up copying 1:1 will result in a hide.
 
 ══════════════════════════════════════
 
