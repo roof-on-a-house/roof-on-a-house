@@ -1,5 +1,7 @@
 <div align="center">
 
+prepare for yapsesh
+
 ═══════════════════════════════════════════════════════════
 
 ## - Hello Everypony -
@@ -12,7 +14,7 @@
 </details>
 
 
-**H**e / **T**hey / **I**t - **G**ender**Q**ueer
+**H**e / **T**hey / **I**t - **G**ender**Q**ueer - **M**asc terms pref
 
 **B**isexual with pref for men, **P**olyamorous 
 
@@ -31,7 +33,7 @@
 <details>
  <summary> Michael Afton IRL - TransCharacter </summary>
 
- **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*), I do not believe TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
+ **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*). I do not believe any TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
 
 </details>
 
@@ -42,12 +44,6 @@
 
 
 ## - Before You Interact -
-
-
-
-I am **Pro-ship** and **Pro-fiction**, your DNI goes both ways.
-
-Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
 
 
 <details>
@@ -64,18 +60,27 @@ Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
   
  ⟡ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use Gen AI ⟡
 
-  *Not complete DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
+  *Not strict DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
 </details>
 
 
-Apologies if the tone of this page feels too negative! I am usually kind and joyful
+I label myself as **pro-ship** but I do not take part in ship discourse or debates.
 
-═══════════════════════════════════════════════════════════
-##
+Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
+
+═══════════════════════════════════════════════════════════⠀⠀⠀⠀
+
+## - Pony Town specific info -
+
+Whisper to interact - I might not be paying attention to my screen, either offtab or fully AFK.
+
+Taking any amount of inspo from my ponies is completely fine, I find it flattering! Straight up copying 1:1 will result in a hide.
+
+If any of my opinions haven't driven you away and you're not on my DNI, cuddles are welcome and encouraged!
+
+══════════════════════════════════════
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<img width="595" height="796" alt="7f678b00d266b04b662988c8425089a6" src="https://github.com/user-attachments/assets/b9357979-e7a7-4932-9d37-c9cdcf23bd6e" />
+
 </div>
-
-
-
