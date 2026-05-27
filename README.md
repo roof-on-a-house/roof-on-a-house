@@ -20,7 +20,6 @@ prepare for yapsesh
 
 **O**bjectum/**O**bjectophile
 
-
 <details>
 
  <summary> 18 years of age </summary>
