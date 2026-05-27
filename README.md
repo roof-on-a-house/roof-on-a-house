@@ -1,6 +1,6 @@
 <div align="center">
 
-prepare for yapsesh
+**this is a bit of a yapsesh but I want to make my boundaries and opinions as clear as I can**
 
 ═══════════════════════════════════════════════════════════
 
