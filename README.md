@@ -12,11 +12,18 @@
 
 **H**e / **T**hey / **I**t
 
-18 years of age || September 04, 2008
+<details>
 
+ <summary> 18 years of age </summary>
+ 
+ *September 04 2008*
+
+</details>
 **Michael Afton** IRL 
 
-*(Fictionkin? TransCharacter? Still figuring out the specifics...)*
+*(Something more than a Fictionkin. TransCharacter? Still figuring out the specifics...)*
+
+Michael IRLs / Fictionkins / etc. are free to and slightly encouraged to interact! Yumes **IWC**.
 
 ══════════════════════════════════════
 
@@ -32,14 +39,16 @@ Dark/comshipper & Yumeshipper (both OC x Canon and Selfships!)
 
 <details>
 <summary> DNI </summary>
-  ⟡ Pro-Contact and Anti-Recovery, Radqueers, -18 (I'm on the 18+ server for a reason) ⟡
+  
+ ⟡ Pro-Contact and Anti-Recovery, Radqueers, -18 (I'm on the 18+ server for a reason) ⟡
 
   *You will be blocked and hidden.*
 </details>
 
 <details>
 <summary> IWC </summary>
-  ⟡ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in any context (this includes on your DNI list), if you use Generative AI or defend people who do ⟡
+  
+ ⟡ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use Gen AI ⟡
 
   *Not complete DNIs but I may hide you eventually. I will NOT friend you if you're on this list.*
 </details>
