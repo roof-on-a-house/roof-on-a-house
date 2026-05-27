@@ -4,15 +4,20 @@
 
 ## - Hello Everypony -
 
+
 <details>
 <summary> Call me Evo or Percy </summary> 
 
   *you can also call me Michael if we're friends*
 </details>
 
-**H**e / **T**hey / **I**t
 
-**G**ender**Q**ueer
+**H**e / **T**hey / **I**t - **G**ender**Q**ueer
+
+**B**isexual with pref for men, **P**olyamorous 
+
+**O**bjectum/**O**bjectophile
+
 
 <details>
 
@@ -22,8 +27,6 @@
 
 </details>
 
-**B**isexual with pref for men, **P**olyamorous - **O**bjectum/**O**bjectophile
-
 
 <details>
  <summary> Michael Afton IRL - TransCharacter </summary>
@@ -31,6 +34,7 @@
  **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*), I do not believe TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
 
 </details>
+
 
 *Michael IRLs / Fictionkins / etc. are free to & encouraged to interact! Yumes **IWC**.*
 
@@ -53,6 +57,7 @@ Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
 
   *You will be blocked and permhidden with no exceptions.*
 </details>
+
 
 <details>
 <summary> IWC </summary>
