@@ -46,7 +46,7 @@
 <details>
 <summary> DNI </summary>
   
-Pro-Contact and Anti-Recovery, Radqueers, Transmeds, -18 (I'm on the 18+ server for a reason)
+Pro-Contact and Anti-Recovery, Transmeds, -18 (I'm on the 18+ server for a reason)
 
   *You will be blocked and permhidden with no exceptions.*
 </details>
@@ -55,7 +55,7 @@ Pro-Contact and Anti-Recovery, Radqueers, Transmeds, -18 (I'm on the 18+ server 
 <details>
 <summary> IWC </summary>
   
-Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI
+Fakeclaimers, Radqueers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI
 
   *Not strict DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
 </details>
