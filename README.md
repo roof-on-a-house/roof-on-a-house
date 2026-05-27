@@ -58,7 +58,7 @@ prepare for yapsesh
 <details>
 <summary> IWC </summary>
   
- ⟡ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use Gen AI ⟡
+ ⟡ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI ⟡
 
   *Not strict DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
 </details>
