@@ -1,6 +1,6 @@
 <div align="center">
 
-**this is a bit of a yapsesh but I want to make my boundaries and opinions as clear as I can**
+
 
 ═══════════════════════════════════════════════════════════
 
@@ -30,7 +30,7 @@
 <details>
  <summary> Michael Afton IRL - TransCharacter </summary>
 
- **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*). I do not believe any TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. I use the label TransCharacter because it best describes how I feel and who I want to be as a person, but I do not believe it is or should be a Queer identity. *I have the same opinion for paraphilias, including objectophilia.*
+ **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*). I do not believe **ANY** TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. My use of the TransCharacter label is not Queer. *I have the same opinion for paraphilias, including objectophilia.*
 
 </details>
 
@@ -46,7 +46,7 @@
 <details>
 <summary> DNI </summary>
   
-Pro-Contact and Anti-Recovery, Transmeds, -18 (I'm on the 18+ server for a reason)
+[TRASH](https://www.acronymfinder.com/Transphobic%2c-Racist%2c-Ableist%2c-Sexist%2c-Homophobic-(TRASH).html), Pro-Contact and Anti-Recovery, Transmeds, -18 (I'm on the 18+ server for a reason)
 
   *You will be blocked and permhidden with no exceptions.*
 </details>
