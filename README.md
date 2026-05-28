@@ -30,12 +30,12 @@
 <details>
  <summary> Michael Afton IRL - TransCharacter </summary>
 
- **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*). I do not believe **ANY** TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. My use of the TransCharacter label is not Queer. *I have the same opinion for paraphilias, including objectophilia.*
+ **I am anti harmful TransIDs** (*EX. TransRace, TransAbled, TransAge*). I do not believe **ANY** TransIDs belong under the Queer umbrella or in LGBTQ+ spaces. My use of the TransCharacter label is not Queer. ***I have the same opinion for paraphilias, including objectophilia.***
 
 </details>
 
 
-*Michael IRLs / Fictionkins / etc. are free to & encouraged to interact! Yumes **IWC**.*
+Michael IRLs / Fictionkins / etc. are free to & encouraged to interact! Yumes **IWC**.
 
 ══════════════════════════════════════
 
