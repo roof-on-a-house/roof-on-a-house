@@ -46,7 +46,7 @@ Michael IRLs / Fictionkins / etc. are free to & encouraged to interact! Yumes **
 <details>
 <summary> DNI </summary>
   
-[TRASH](https://www.acronymfinder.com/Transphobic%2c-Racist%2c-Ableist%2c-Sexist%2c-Homophobic-(TRASH).html), Pro-Contact and Anti-Recovery, Transmeds, -18 (I'm on the 18+ server for a reason)
+[TRASH](https://www.acronymfinder.com/Transphobic%2c-Racist%2c-Ableist%2c-Sexist%2c-Homophobic-(TRASH).html), Pro-Contact and Anti-Recovery, Radqueers, Transmeds, -18 (I'm on the 18+ server for a reason)
 
   *You will be blocked and permhidden with no exceptions.*
 </details>
@@ -55,7 +55,7 @@ Michael IRLs / Fictionkins / etc. are free to & encouraged to interact! Yumes **
 <details>
 <summary> IWC </summary>
   
-Fakeclaimers, Radqueers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI
+Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when referring to pedophiles in **any** context, if you use GenAI
 
   *Not strict DNIs but I might hide you depending on my mood. I will NOT friend you if you're on this list.*
 </details>
