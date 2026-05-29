@@ -62,6 +62,7 @@ Fakeclaimers, if you refer to other people as "doubles", if you use "MAP" when r
 
 
 I label myself as **pro-ship** but I do not take part in ship discourse or debates. I will not entertain discussion about shipcourse with random people, and only occasionally will with friends. *If you're pro and constantly complain to me about antis I will block you.*
+
 Dark/Comshipper & Yumeshipper *(both OC x Canon and Selfships)*
 
 ═══════════════════════════════════════════════════════════⠀⠀⠀⠀
