@@ -6,6 +6,6 @@ hai you can call me Buddy or Bluey ok? if you're reading this and i have specifi
 
 there might some important info for you on my pronouns.page [right here](https://en.pronouns.page/@goodest-boy) ! 
 
-non-agere/petre pronouns.page [here](https://en.pronouns.page/@glori.evo) if you're curious to know labels, normal pronoun preferences, names, etc!
+non-agere/petre pronouns.page [here](https://en.pronouns.page/@glori.evo) if you're curious to know labels, normal pronoun preferences, names, etc.
   
 </div>
