@@ -4,9 +4,9 @@
 
 
 
-<img width="525" height="320" alt="bluey-bluey-the-sign" src="https://github.com/user-attachments/assets/7226fca9-8d00-48e8-983c-ee44dd2597ef" />
+<img width="495" height="300" alt="bluey-bluey-the-sign" src="https://github.com/user-attachments/assets/7226fca9-8d00-48e8-983c-ee44dd2597ef" />
 
-<img width="330" height="320" alt="bluey-gasp" src="https://github.com/user-attachments/assets/b48349e0-46fc-4fa2-a048-95f97dc7f7d3" />
+<img width="310" height="300" alt="bluey-gasp" src="https://github.com/user-attachments/assets/b48349e0-46fc-4fa2-a048-95f97dc7f7d3" />
 
 
 
