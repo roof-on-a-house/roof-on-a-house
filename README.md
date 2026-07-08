@@ -66,7 +66,7 @@ we're unlikely to say anything, but we might interact with emotes and boops!
 
 <details>
 
-<summary> WARNING! ↴ </summary>
+<summary> ↓ !WARNING! ↓ </summary>
 
 #### We regress voluntarily and for comfort. Regression is *NOT* a sexual thing for us, and if you even *SLIGHTLY* imply that it is you will be blocked immediately.
 
